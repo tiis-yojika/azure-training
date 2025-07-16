@@ -1,1 +1,0 @@
-# x-garage-0x0-product
